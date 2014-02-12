@@ -1,3 +1,3 @@
 最新网址是：
-www.yp2info.com
-www.yp1.info
+www.yp5.info
+www.yp6.info
